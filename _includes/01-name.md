@@ -1,1 +1,2 @@
-Replace this with your name, and include a header.
+# Callum 'Cookie man' Standen
+# I like anime and hentai
